@@ -1,1 +1,1 @@
-# Luis_Ricardo_Olivares_IC_0502_Arquitectura_de_computadoras
+# Luis_Prensa
